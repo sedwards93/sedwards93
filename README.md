@@ -2,4 +2,4 @@
 - 😄 Pronouns: he/him
 - 👨‍💻 Makers.tech graduate
 
-[Medium](https://symion-edwards.medium.com/) | [LinkedIn](https://www.linkedin.com/in/symion-edwards-433158109/)
+[symion.co.uk](https://www.symion.co.uk/) | [Medium](https://symion-edwards.medium.com/) | [LinkedIn](https://www.linkedin.com/in/symion-edwards-433158109/)
